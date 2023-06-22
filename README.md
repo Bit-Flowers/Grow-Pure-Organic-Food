@@ -1,4 +1,4 @@
-# Grow-Pure-Organic-Foods
+# Grow Pure Organic Food!
 Grow Pure Foods Indoors! To control ALL environment factors, contaminants / pollutants, pests & diseases!
 
 # example: Rice with NO Arsenic!
